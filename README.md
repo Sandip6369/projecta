@@ -1,4 +1,4 @@
-^ - ctrl
-
-
-swdexfrtgyhujikolp;[sazdefrtgyhujikopl[;]zsxdfghyjuklop;[']xdcfghyjukiolp;[] projecta
+Wewsedrftgyhujikolpdfcghjkl;
+sxdfrtgyhujikolp;['dxfcgvhbjkl;
+xdcfgvhyujkiolp;['
+cfvghbjnkml;'/'.
